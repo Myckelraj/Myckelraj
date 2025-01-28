@@ -1,1 +1,1 @@
-WordPress & Java Developer | Specializing in streamlining content management workflows with automated WordPress solutions | Reduced manual effort by 90% through efficient content update processes
+WordPress & Java Developer | Expertise in automating content management workflows on WordPress, driving efficiency and reducing manual tasks by 90% | Passionate about creating streamlined solutions for faster content updates.
